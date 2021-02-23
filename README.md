@@ -1,6 +1,6 @@
 Meu segundo sistema no git.
 
-PALMEIRAS CAMPEÃO DA LIBERTA AMANHÃ..
+PALMEIRAS CAMPEÃO DA COPA DO BRASILLL..
 
 NOVA LINHA ADICIONADA
 mais uma linha
